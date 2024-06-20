@@ -1,4 +1,4 @@
-# Caffé latte
+# Café con leche de almendras
 
 ## Description: Standard caffé latte
 
