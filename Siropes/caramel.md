@@ -1,4 +1,4 @@
-# Cinnamon Dolce Syrup
+# Sirope de Caramelo
 
 ## Description: Add the exciting sweetness of caramel syrup to any coffee at home with this delicious recipe
 
