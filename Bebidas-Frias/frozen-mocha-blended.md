@@ -1,4 +1,4 @@
-# Mocha Frozen Blended Coffee​
+# Helado mocca cafe
 
 ## Description: The Mocha Frozen Blended Coffee, where coffee, milk, ice and chocolaty goodness all come together for a delicious cold drink
 
@@ -24,3 +24,8 @@
 ### Step 3
 
 - Pour blended mixture into 16-oz glass.
+
+### Step 4
+
+- Top with whipped cream and chocolate shavings.
+
