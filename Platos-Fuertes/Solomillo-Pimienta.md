@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 2 solomillos de cerdo medianos 
+- 2 solomillos de cerdo medianos de medio kilo de peso aproximado cada uno.
 - 100 ml de caldo de carne
 - 200 ml de nata para cocinar
 - media cebolla pequeña
