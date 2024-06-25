@@ -4,7 +4,7 @@
 
 ## Ingredientes
 
-- 100 gramos de pechuga de pollo
+- 150 gramos de pechuga de pollo
 - Picatostes de pan frito
 - media lechuga romana
 - 50 gramos de aceitunas negras 
@@ -27,7 +27,7 @@
 
 - A la hora de añadir los ingredientes de nuestra ensalada podemos aromatizarla con el ajo sin necesidad de añadirlo a la salsa. Para ello, en el bol en que vayamos a servir la ensalada, el método es machacar dos dientes de ajo hasta su desintegración y frotar con esta pulpa las paredes de bol y luego quitar la pulpa. Así evitamos la potencia del ajo en la salsa y que no nos repita. Conseguiremos una salsa más suave y todo el sabor del ajo.
 
-- Lavamos la lechuga y escurrimos bien. Una vez limpia, bien lavada, seca la lechuga y cortada la podemos reservar en la nevera por espacio de 30 minutos. Con esto haremos que quede la lechuga más crujiente.
+- Lavamos la lechuga y escurrimos bien. Una vez limpia, bien lavada, seca la lechuga y cortada en trozos medianos, la podemos reservar en la nevera por espacio de 30 minutos. Con esto haremos que quede la lechuga más crujiente.
 
 - En una sartén añadimos un poco de aceite de oliva virgen extra y pasamos la pechuga de pollo (entera, los 100 gramos son 2 filetes grandes de pechuga) en el aceite bien caliente. Cuando estén dorados apartamos y quitamos el exceso de aceite con un poco de papel absorbente. Troceamos en tiras largas y delgadas. La receta original es con pollo asado (puedes congelar parte del que te sobre cuando lo hagas en casa y utilizarlo en esta ensalada) pero como veis esta vez va con pollo macerado con un poco de sal de ajo, comino, pimentón dulce y pimienta a la plancha. Retiramos en un plato hasta montar la ensalada.
 
